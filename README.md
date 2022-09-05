@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate with people who is in the web developer business, like me. 
 
-- 📫 How to reach me: My Email is: gabrieltuzzo@hotmail.com; my phone number is: +55 62 982700565; and my discord is: Biel#9554.
+- 📫 How to reach me: My Email is: gabrieltuzzo@hotmail.com; my phone number is: +351 920 592 055; and my instagram is: @biel_tuzzo.
 
 <!---
 GabrielTuzzo/GabrielTuzzo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
